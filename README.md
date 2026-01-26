@@ -92,7 +92,7 @@ The study combines theoretical analysis with field data collected from bank empl
 - Hassan Mohamed Hassan El-Bahy  
 - Abdelrahman Khaled Saad Mohamed  
 - Mohamed Tarek Mohamed Ezzat El-Husseiny  
-- **Mostafa Mahmoud Abdoh Maged**
+- **Mostafa Mahmoud Abdo Maged**
 
 ---
 
